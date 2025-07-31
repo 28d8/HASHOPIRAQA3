@@ -1,1 +1,0 @@
-# HASHOPIRAQA3
